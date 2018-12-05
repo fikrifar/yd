@@ -1,2 +1,3 @@
 # yd
-Nuyul Apk Yede
+Nuyul Apk Yede Nyus
+ Creator Terterra
